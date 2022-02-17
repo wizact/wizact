@@ -7,7 +7,7 @@
  \__,_|_| |_| |_|_|_(_)\__,_|\___| \_/  
 
 ```                                       
-👨🏻‍💻 [Profile](https://www.linkedin.com/in/amirmohtasebi/)
+👨🏻‍💻 [Profile](https://mohtasebi.com/)
 
 
 <!--
